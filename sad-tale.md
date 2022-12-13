@@ -8,3 +8,5 @@ Then zombies.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to
 begin, and let me assure you he will ___DEFINITELY NOT DIE!___
+
+I don't know anything about GOT i reccoment watching Stargate SG-1 its a good 90's sci-fi series. 
